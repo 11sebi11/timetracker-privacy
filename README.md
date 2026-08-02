@@ -32,4 +32,4 @@ Da alle Daten lokal bzw. in deinem persönlichen iCloud-Account liegen, hast du 
 
 Bei Fragen zum Datenschutz erreichst du uns unter:
 
-E-Mail: support@deindomain.de (oder deine persönliche E-Mail-Adresse)
+E-Mail: sebastiansteinfilm@gmail.com
