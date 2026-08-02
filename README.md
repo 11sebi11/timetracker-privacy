@@ -33,3 +33,5 @@ Da alle Daten lokal bzw. in deinem persönlichen iCloud-Account liegen, hast du 
 Bei Fragen zum Datenschutz erreichst du uns unter:
 
 E-Mail: sebastiansteinfilm@gmail.com
+
+Hast du Fragen, Feedback oder benötigst Hilfe zu TimeTracker? Wir helfen dir gerne weiter! Schreibe uns einfach eine E-Mail an sebastiansteinfilm@gmail.com
